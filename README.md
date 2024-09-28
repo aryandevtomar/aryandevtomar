@@ -1,2 +1,2 @@
-How much time does it take?
+How much time does it takes?
 Lets see
